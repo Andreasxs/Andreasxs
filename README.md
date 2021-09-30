@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Andreasxs
-- 👀 I’m new here, i want to learn coding
+- 👀 I’m new here, i want to learn to code
 - 🌱 I’m currently trying to learn how to code
 - 💞️ I’m looking to collaborate with students and teachers 
 - 📫 How to reach me: xexakisandreas@gmail.com
